@@ -1,1 +1,1 @@
-I am a man b c
+I am a man
